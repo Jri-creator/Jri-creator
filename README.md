@@ -1,2 +1,2 @@
--Jri-creator
--New Github'er
+-Hello!
+-I'm Jri-creator, New to Github (still) and human.
