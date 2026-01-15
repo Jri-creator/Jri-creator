@@ -5,7 +5,7 @@
 
 ---
 
-I'm Jri-creator, also known as Jri-**C**reator on some other platforms. I mainly work on my websites (you can find the full public list at https://jri.rf.gd) but if I'm on here, I'm doing stuff.
+I'm Jri-creator, also known as Jri-**C**reator on some other platforms. I mainly work on my websites (you can find the full public list at https://jri.qzz.io) but if I'm on here, I'm doing stuff.
 
 I love koalas. Something about koalas and me, they match quite well sometimes. 
 
@@ -15,4 +15,4 @@ Despite my many years of having things and using things, I find that I'm still g
 
 While it would be amazing, to be the koala resting in the trees in that photo, I'm still a human with a life. 
 
-If you ever want to reach out, you can either send a **JriMail** to **Jri-creator**, or you can email me at jri-creator@jri.rf.gd. No, I don't have a public phone number, that's weird. 
+If you ever want to reach out, you can either send a **JriMail** (https://jmail.rf.gd) to **Jri-creator**, or you can email me at jri-creator@jri.qzz.io. No, I don't have a public phone number, that's weird. 
